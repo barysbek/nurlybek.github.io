@@ -1,2 +1,1 @@
-# nurlybek.github.io
-Website for Nurlybek
+                                                # Жаным сені сүйемін!!! ♥♥♥
