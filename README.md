@@ -1,1 +1,1 @@
-                                                # Жаным сені сүйемін!!! ♥♥♥
+# Website from gyroscope
